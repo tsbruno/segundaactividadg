@@ -1,4 +1,4 @@
 # segundaactividadg
-segunda actividad generation delocho de dic del veintiuno
+Actividades Generation: segunda actividad generation del 8 de dic del 2021
 
-estas fueron mis actividades del ocho de dic del 2021
+
